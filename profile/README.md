@@ -1,0 +1,3 @@
+# Friedrich-Wilhelms-Gesellschaft Altena
+
+More info coming soon ...
